@@ -11,3 +11,5 @@
  - 15m gehen lassen
  - In eine leicht gefettete Kastenform geben
  - Bei 200 Grad nicht vorgeheizt Unter/Oberhitze 1 Stunde backen
+
+ Lieben Dank an Birgit V.
